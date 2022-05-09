@@ -1,6 +1,6 @@
 - Hi, I’m @Samin-yasar
 - I’m interested in coding and travelling
-- I’m currently taking my formal education @ Rajuk Uttara Model College, one of the best educational institution in Bangladesh
+- I’m currently taking my formal education at Rajuk Uttara Model College, one of the best educational institutions in Bangladesh
 - I’m living in Gazipur, Bangladesh now.
 - You can reach out to me by:
 Mailing me @ samin.yasar23@proton.me
